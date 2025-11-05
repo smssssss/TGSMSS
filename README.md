@@ -19,12 +19,12 @@
 
 🔥 TG全能搜索	https://t.me/sesou20w	支持多种资源的强大搜索引擎
 
-🎥 电影搜索Pron	https://t.me/sepiansousuo	支持电影、资源的搜索功能
+🎥 电影搜索 Pron	https://t.me/sepiansousuo	支持电影、资源的搜索功能
 
-🔥 极搜20万人搜索群	https://t.me/jisou200000	热门搜索群，涵盖多种资源
+🔥 极搜20万人搜索群	 https://t.me/jisou200000	 热门搜索群，涵盖多种资源
 
-🔥 资源搜索	https://t.me/resource4	提供多类型的资源搜索功能
+🔥 资源搜索 	https://t.me/resource4	 提供多类型的资源搜索功能
 
-🔥 稀缺资源搜索	https://t.me/sosobo2	提供稀缺资源的专门搜索
+🔥 稀缺资源搜索	 https://t.me/sosobo2	 提供稀缺资源的专门搜索
 
-🔥 神马搜索	https://t.me/smss	提供快速资源搜索服务
+🔥 神马搜索 	https://t.me/smss	 提供快速资源搜索服务
